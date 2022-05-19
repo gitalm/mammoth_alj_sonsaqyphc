@@ -1,1 +1,0 @@
-# mammoth_alj_sonsaqyphc
